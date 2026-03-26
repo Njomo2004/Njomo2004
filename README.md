@@ -1,6 +1,14 @@
 ## Hi there 👋
+## I'm Njomo
+New to all this but it is worth looking into and anything worth looking isn't necessarily easy and it is the process over the destination
+## #TRYINGTHINGSSINCEWHYNOT
+- I am all about AI
+- I am currently building an appp using AI and it involves code and any insight/perspective would be appreciated
+- reach out through instagram (https://www.instagram.com/njomo.exe?igsh=a3o4eHdncjc3OHBn)........njomo.exe
+- Fun fact......I am so clueless😭 but totally ready to see where this goes😂
 
-<!--
+<!--![WhatsApp Image 2026-03-26 at 9 57 51 PM (1)](https://github.com/user-attachments/assets/329a8521-0a82-4d29-b364-4684bb019128)
+
 **Njomo2004/Njomo2004** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 Here are some ideas to get you started:
